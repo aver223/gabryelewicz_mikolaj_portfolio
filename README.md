@@ -1,1 +1,0 @@
-# gabryelewicz_mikolaj_portfolio
